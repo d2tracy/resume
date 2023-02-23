@@ -11,3 +11,10 @@ Declan's Spirit Animal:
 [Berkeley High School](https://bhs.berkeleyschools.net/)
 
 [Western Washington University](https://www.wwu.edu/)
+
+
+## Research Interests:
+
+Marine and Coastal Science
+Octopuses
+Ocean Acidification
