@@ -15,6 +15,4 @@ Declan's Spirit Animal:
 
 ## Research Interests:
 
-Marine and Coastal Science
-Octopuses
-Ocean Acidification
+Marine and Coastal Science, Octopuses, and Ocean Acidification
